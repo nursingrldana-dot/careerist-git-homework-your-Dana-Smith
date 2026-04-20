@@ -1,1 +1,1 @@
-# careerist-git-homework-your-Dana-Smith
+# careerist-git-homework-Dana-Smith
